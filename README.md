@@ -4,7 +4,7 @@ Meu nome é Gabriel ribeiro silva
 
 - Estou estudando no app [Alura](https://www.alura.com.br)
 - Estou me desenvolvendo na linguagem JavaScript
-- Aqui irei compartilhar meus projetos densenvolvidos
+- Aqui irei compartilhar meus projetos
 
 ### Entre em contato 📫
 
