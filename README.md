@@ -12,5 +12,5 @@ biel11silva29@gmail.com
 
 @biel_apenas_
 
-![]()
-https://media.tenor.com/XNYXr6rL2o8AAAAM/duck.gif
+
+![](https://media.tenor.com/XNYXr6rL2o8AAAAM/duck.gif)
