@@ -12,6 +12,6 @@ biel11silva29@gmail.com
 
 @biel_apenas_
 
-![](https://tenor.com/pt-BR/view/vinicius-jr-vini-jr-brazil-goal-celebration-gif-25209738)
 
 
+![](https://media.tenor.com/XNYXr6rL2o8AAAAM/duck.gif)
